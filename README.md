@@ -1,1 +1,1 @@
-# Magic_Notes
+https://imsachinchowdhury.github.io/Magic_Notes/
